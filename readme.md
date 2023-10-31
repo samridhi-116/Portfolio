@@ -1,0 +1,1 @@
+- For the best viewing experience, please access the website at a 1440px desktop resolution.
